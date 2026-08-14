@@ -3,4 +3,4 @@
 
 
 **Contact Me**
-- 📮 alonia@qq.com | aloniacode@gmail.com
+📮  aloniacode@gmail.com OR alonia@qq.com 
