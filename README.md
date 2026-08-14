@@ -4,4 +4,3 @@
 
 **Contact Me**
 - 📮 alonia@qq.com | aloniacode@gmail.com
-- 🏠 [Blog](https://aloniablog.vercel.app)
